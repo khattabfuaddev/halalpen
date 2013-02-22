@@ -1,4 +1,4 @@
 halalpen
 ========
 
-we're trying to give  the word ''document" new meanings &lt;3
+Now you make .html?a=withjavascript  <3 
